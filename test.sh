@@ -1,10 +1,3 @@
-trtrtrtrtrrtrtaergaseg5ae
-dfgaergaegae5rae
-er5ga5rgaearg
-ergaeeregar5gasergaeetrggaergerarg
-hjgdeae
-fwgae
-edfrg
 wqeae
 dfgaer
 wdegs
